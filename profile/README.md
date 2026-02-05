@@ -1,1 +1,1 @@
-![Alt text](Gem Creative.png)
+![Alt text](Gem.png)
